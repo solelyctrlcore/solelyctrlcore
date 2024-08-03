@@ -1,8 +1,6 @@
 my name @solelyctrlcore what yo name is...
 
-i've recently started developing one of minecraft's oldest and most popular mods and bringing it back for a reboot!
-
-i'm learning javascript and it will be the only language i learn for now. i do hope it gets me up somewhere as i plan to major in civil engineering.
+i miss copious dogs so i'll be the one to bring it back.
 
 reach me by social media :
 > discord : ctrlcore
