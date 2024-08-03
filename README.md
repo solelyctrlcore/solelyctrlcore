@@ -5,7 +5,7 @@ i've recently started developing one of minecraft's oldest and most popular mods
 
 i'm learning javascript and it will be the only language i learn for now. i do hope it gets me up somewhere as i plan to major in civil engineering.
 
-reach me by any social media
+reach me by social media :
 > discord : ctrlcore
 > 
 > twitter : cctrlcore
