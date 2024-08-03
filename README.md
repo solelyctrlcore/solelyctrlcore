@@ -7,5 +7,7 @@ i'm learning javascript and it will be the only language i learn for now. i do h
 
 reach me by any social media
 > discord : ctrlcore
+> 
 > twitter : cctrlcore
+> 
 > you can try instagram [@danielfan53] but i most likely won't respond i fear
