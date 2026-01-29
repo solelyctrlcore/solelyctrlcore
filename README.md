@@ -1,10 +1,4 @@
-my name @solelyctrlcore what yo name is...
+wsg
+18 // he
 
-i miss copious dogs so i'll be the one to bring it back.
-
-reach me by social media :
-> discord : ctrlcore
-> 
-> twitter : cctrlcore
-> 
-> you can try instagram [@danielfan53] but i most likely won't respond i fear
+> craig's buffet coming january 2070 trust
